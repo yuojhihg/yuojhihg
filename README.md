@@ -1,4 +1,4 @@
--嗨，我是yobioyojhihg
+-嗨，yoyoyojhihg
 -我对……感兴趣。
 -我目前正在学习汉语。
 -我想和你合作……
